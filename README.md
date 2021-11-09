@@ -1,2 +1,17 @@
 # 2021-K-Digital-Training-Hackathon
 
+![2 PPT_AI603-01](https://user-images.githubusercontent.com/81130130/140858630-c92e1d81-75d1-41df-a35a-80e8729d42b3.png)
+![2 PPT_AI603-02](https://user-images.githubusercontent.com/81130130/140858635-d7bcf4ea-d807-4f69-828e-03babfe48cd8.png)
+![2 PPT_AI603-03](https://user-images.githubusercontent.com/81130130/140858636-f8137c60-74cb-4993-97ef-62218ea10a56.png)
+![2 PPT_AI603-04](https://user-images.githubusercontent.com/81130130/140858641-400142db-8926-4436-8ff6-ef8bede46ebb.png)
+![2 PPT_AI603-05](https://user-images.githubusercontent.com/81130130/140858643-a8b6a06d-2e35-4fae-812f-06c2d9e6b3c7.png)
+![2 PPT_AI603-06](https://user-images.githubusercontent.com/81130130/140858644-f2c62bb2-dee1-44fb-8666-aa63b3b1629c.png)
+![2 PPT_AI603-07](https://user-images.githubusercontent.com/81130130/140858646-37224b2f-2916-4880-a1d8-bd5f2d2275e2.png)
+![2 PPT_AI603-08](https://user-images.githubusercontent.com/81130130/140858648-6d87bef1-5717-429d-b86b-b492923d44de.png)
+![2 PPT_AI603-09](https://user-images.githubusercontent.com/81130130/140858649-afd2522e-358a-424d-9668-229fd42c5088.png)
+![2 PPT_AI603-10](https://user-images.githubusercontent.com/81130130/140858651-a1c74b58-a512-4801-893c-c5b39eb7aec8.png)
+![2 PPT_AI603-11](https://user-images.githubusercontent.com/81130130/140858652-568863c5-9636-4874-af7c-971034022987.png)
+![2 PPT_AI603-12](https://user-images.githubusercontent.com/81130130/140858654-4cab460f-9468-44f8-b359-b21a84518e74.png)
+![2 PPT_AI603-13](https://user-images.githubusercontent.com/81130130/140858658-55cfa4cd-265a-42df-9b5e-d8eac2d2af91.png)
+![2 PPT_AI603-14](https://user-images.githubusercontent.com/81130130/140858660-2681b08d-3873-42f7-a454-6d310b14ef82.png)
+![2 PPT_AI603-15](https://user-images.githubusercontent.com/81130130/140858661-f4028b64-bf24-423a-a306-d8e62693494a.png)
